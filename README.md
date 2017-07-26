@@ -1,2 +1,7 @@
 # hello-world
-Just add my repository
+
+
+Hi Everyone!
+
+
+Sowmya here, am just new to here its going to be rock here
